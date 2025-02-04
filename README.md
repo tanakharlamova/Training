@@ -101,3 +101,14 @@ ______
 
 ## Команда проекта
 
+[AnastasiyaNS](https://github.com/AnastasiyaNS)
+
+[Anasteishaa01](https://github.com/Anasteishaa01)
+
+[AnnaTok0811](https://github.com/AnnaTok0811)
+
+[irina1430](https://github.com/irina1430)
+
+[nastyaur1997](https://github.com/nastyaur1997)
+
+[tanakharlamova](https://github.com/tanakharlamova)
